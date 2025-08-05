@@ -14,4 +14,4 @@ Name - Akash , Branch- civil engineering
 #Day-3
 
 4th August
-## It was our third day of induction program at GNDEC auditorium.As like all days we start our day with prayers.Firstly our HOD Dr.Harpreet welcome us.Then the memebers of Causmic Club tell us about Causmic Club .That how they organises events in GNDEC by the help of students and there are many  
+## It was our third day of induction program at GNDEC auditorium.As like all days we start our day with prayers.Firstly our HOD Dr.Harpreet welcome us.Then the memebers of Causmic Club tell us about Causmic Club .That how they organises events in GNDEC by the help of students and there are many 
