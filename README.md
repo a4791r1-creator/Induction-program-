@@ -14,8 +14,7 @@ Name - Akash , Branch- civil engineering
 #Day-3
 
 4th August
-## It was our third day of induction program at GNDEC auditorium.As like all days we start our day with prayers.Firstly our HOD Dr.Harpreet welcome us.Then the memebers of Causmic Club tell us about Causmic Club .That how they organises events in GNDEC by the help of students and there are many benefits of joining it.Then Dr.Priya Darshani gives us second lecture on "Universal Human Values".Firstly she gives us recap on last week lecture.Then she tells us the difference between excitement and happiness and the importance of Trust on ourselves.Then after break we went to attend our physics lecture at TCC Sem Hall where Prof.Amarjot Kaur
-tells us about the physics syllabus and how the MST and exams are conducted.After physics we went to room-118 for P2P lecture in which our seniors gives the basic knowledge of C++ language.After P2P lecture we come back to home.
+## It was our third day of induction program at GNDEC auditorium.As like all days we start our day with prayers.Firstly our HOD Dr.Harpreet welcome us.Then the memebers of Causmic Club tell us about Causmic Club .That how they organises events in GNDEC by the help of students and there are many benefits of joining it.Then Dr.Priya Darshani gives us second lecture on "Universal Human Values".Firstly she gives us recap on last week lecture.Then she tells us the difference between excitement and happiness and the importance of Trust on ourselves.Then after break we went to attend our physics lecture at TCC Sem Hall where Prof.Amarjot Kaur tells us about the physics syllabus and how the MST and exams are conducted.After physics we went to room-118 for P2P lecture in which our seniors gives the basic knowledge of C++ language.After P2P lecture we come back to home.
 
 # Day-4
 
