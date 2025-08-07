@@ -19,3 +19,6 @@ Name - Akash , Branch- civil engineering
 # Day-4
 
 5th August 
+## It is our fourth day of induction program at GNDEC.On this day we have went auditorium at 1:30pm where Mr.Gautam Murria sir gives knowledge abot "Motor Sports"
+in which he tells that why the cars are more balanced tahn two wheeler vehicles,and gives us a condition by following that conditions we have to increase the balance of a car.Then they tells the answer that if we have to increase the balance of then we have to attach more tyres
+to it 
