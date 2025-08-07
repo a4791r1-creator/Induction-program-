@@ -19,8 +19,7 @@ Name - Akash , Branch- civil engineering
 # Day-4
 
 5th August 
-## It was our fourth day of induction program at GNDEC.On this day we have went auditorium at 1:30pm where our HOD Dr. Harpeet welcomed us. Then Mr.Gautam Murria sir gives knowledge abot "Motor Sports"
-in which he tells that why the cars are more balanced tahn two wheeler vehicles,and gives us a condition by following that conditions we have to increase the balance of a car.Then they tells the answer that if we have to increase the balance of then we have to attach more tyres
+## It was our fourth day of induction program at GNDEC.On this day we have went auditorium at 1:30pm where our HOD Dr. Harpeet welcomed us. Then Mr.Gautam Murria sir gives knowledge abot "Motor Sports"in which he tells that why the cars are more balanced tahn two wheeler vehicles,and gives us a condition by following that conditions we have to increase the balance of a car.Then they tells the answer that if we have to increase the balance of then we have to attach more tyres
 to make it more balanced.After sir Mrs.Shaffy Makkar Mam gives us a expert lecture on "Millets Super Food" in which she tells that much millets are important for us,and millets are act like a doctor.They control all the diseases like sugar ,fat and other diseases.Also contains us 11% of protien in it.She also tells how in old times they are called as poors food but they are very important for us.Tells that how after green revolution only wheat and rice are in food but they are negative millets.At last she tells the cooking recipes for the increase its taste and how to right method to take milltes.So that's how we end our fourth day of induction program.
 
 # Day-5
