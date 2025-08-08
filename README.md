@@ -29,4 +29,5 @@ Name - Akash , Branch- civil engineering
 # Day-6
 
 7th August 
-## It was our sixth day of induction program at Firstly we have maths lecture where 
+## It was our sixth day of induction program at Firstly we have maths lecture where Prof.Sukhminder Singh tells us how to find syllabus at website of GNDEC,and how to find all information about faculties.Then he tells us about phone app named Desmos in which we can draw and graph in 2D with putting equations.Also tells us about phone app named Geogebra in which we can draw any 3D figure by putting the equations.He say if we have provided technology then we have to use it properly not missuse it.Then we have physics lecture by Prof.Komalpreet Kaur in which she tells us about the important chapter and important topics for MST and practicals .Then we have to go to the outside of TCC Sem Hall to making of our ID Cards.Then after break.We have to went to auditorium where Dr.Lakhvir Singh Khana Sir(incharge-CML).He tells all us about CML where they conducts all the programs without sports and dance.Also he was very happy with us by seeing our energy.
+
